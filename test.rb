@@ -1,0 +1,1 @@
+Today is Thursday, lets have a great day!
